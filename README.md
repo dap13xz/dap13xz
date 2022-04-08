@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello mine names dap and im 14years old and i like coding
 
 <!--
 **dap13xz/dap13xz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
